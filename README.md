@@ -6,6 +6,5 @@
 
 
 
-
-Uploading RPReplay_Final1695874284.MP4…
+![IMG_CFAA82A62014-1](https://github.com/ethedeltae/TaskVision-iOS-/assets/114558002/7cded0d8-c833-4231-9fa8-703c1789adce)
 
